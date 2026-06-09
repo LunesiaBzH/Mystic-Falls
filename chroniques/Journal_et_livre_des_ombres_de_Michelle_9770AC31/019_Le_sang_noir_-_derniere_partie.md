@@ -1,0 +1,19 @@
+# Le sang noir - dernière partie
+
+Cher Journal,
+
+C'est lors d'une célébration Ktunaxa que nous avons rencontré Sootah, la fameuse chamane que Wakanah voulait nous faire rencontrer. Déjà que je trouvais Wakanah particulièrement impressionnante, j'ai bien vite constaté que Sootah était d'un niveau au-dessus. L'Indienne, qui avait apparemment l'âge de ma mère, était vêtue de cuir et de daim. Rien qu'en la voyant, on sentait qu'elle était une femme d'action et de terrain. Elle nous a d'ailleurs confié être l'une des chamanes chargées des différents rites et cérémonies à travers la réserve.
+
+Wakanah lui avait déjà parlé de nous, et Sootah nous a avoué être assez étonnée d'apprendre que deux jeunes Blanches s'intéressaient suffisamment aux maux de la terre et aux esprits pour avoir cherché à arrêter Akuntika, tout comme nous avions fait preuve d'assez d'initiative et de talent pour créer un remède contre lui et sa corruption.
+
+Comme Sootah nous l'a expliqué, à présent que nous avions la pierre noire et le sel de Mistvale, nous étions prêtes à procéder au rituel d'emprisonnement. Nous savions qu'il se cachait quelque part dans une grotte, mais la chamane avait une piste plus sûre : d'anciennes mines qui donnaient sur d'anciens lieux sacrés, je crois. Elle nous a chargés, Amber et moi, d'user de notre Don pour repousser les créatures et la corruption d'Akuntika, pendant qu'elle-même mènerait le rituel. Kuruk s'est aussitôt proposé de nous accompagner, ce qu'elle a acceptée.
+
+Du coup, j'ai voulu préparer quelques surprises à ma sauce. Bon, le film Une nuit en enfer m'a donné l'idée ultime qui – avouons-le – s'est avérée aussi utile qu'efficace : remplir des pistolets à eau de mon antidote et tenter l'enchantement d'une batte de baseball. Autant Amber était ravie de sa batte, autant Kuruk était... perplexe à l'idée d'utiliser un jouet contre les ennemis. Mais il m'a fait confiance, et ça... c'est précieux au-delà des mots, surtout en sachant que notre relation n'en est encore qu'à ses débuts et que nous risquions nos vies dans cette histoire.
+
+C'est donc bien équipés que nous nous sommes rendus, tous les quatre, vers l'une des anciennes mines de Mystic Falls. Nous ne l'avions pas encore atteinte que nous avions senti qu'on nous suivait. Randall. Le premier à avoir été corrompu. Nous nous sommes dépêchés de nous enfermer dans la mine, sécurisant la porte comme on pouvait pour gagner autant de temps que possible.
+
+Il ne fut pas difficile de trouver où se trouvait Akuntika ; il nous suffisait de suivre ces horribles veines noires et pulsantes qui tapissaient les murs et le sol. Et bien sûr, il y avait quelques autres créatures faisant la garde de celui qui n'avait pas encore réussi à sortir complètement de sa prison. Mais le vrai combat a eu lieu lorsqu'une partie du « Suceur de bêtes », car telle est la signification du nom de l'Esprit dans notre langue, s'est mise à nous attaquer, aidé par Randall qui avait réussi à se frayer un chemin.
+
+Et bien, je peux te dire que la bataille était ardue, très ardue même ! Je ne me féliciterai jamais assez d'avoir pensé à remplir des pistolets à eau et des ballons de mon pseudo-antidote. La batte d'Amber a aussi fonctionné à merveille, sincèrement. J'ai le sentiment que tout s'est passé à la fois très vite et, en même temps, ça a duré une éternité. Mais nous avons réussi à tenir en respect Randall et Akuntika le temps que Sootah achève le rituel. Randall s'est totalement désagrégé sous l'effet de nos armes (paix à son âme), tandis qu'Akuntika a fini par être enfermé dans sa nouvelle prison pour, je l'espère, de longues et nombreuses décennies.
+
+C'est ainsi que nous avons mis fin à l'activité du Suceur de bêtes, renvoyant cet esprit ancien de l'autre côté de nos frontières, de notre monde. Nous allons pouvoir souffler un peu... et nous concentrer un peu plus sur le problème d'Amber et du fantôme qui la harcèle...
